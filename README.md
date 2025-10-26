@@ -6,4 +6,5 @@
 ![shweta](https://github.com/user-attachments/assets/03729244-ace6-4bc0-8b77-dc413333734e)
 ![anshu](https://github.com/user-attachments/assets/5f3b5faf-45d0-47a4-864e-db69355cdd99)
 <img width="1886" height="2160" alt="misterutsav-2-2" src="https://github.com/user-attachments/assets/8b6b984a-386c-4bdd-8a52-4b3d49e3883e" />
-![WhatsApp Image 2025-10-20 at 20 26 25](https://github.com/user-attachments/assets/f5359981-0aa8-4bf5-9945-e8ea6bc9c896)
+
+<img width="389" height="521" alt="Screenshot 2025-10-26 at 11 49 47 AM" src="https://github.com/user-attachments/assets/74a7e224-be2b-467f-8db7-c8dd1603c68b" />
