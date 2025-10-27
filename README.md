@@ -13,3 +13,4 @@
 ![pexels-qamar-rehman-94539242-12749504](https://github.com/user-attachments/assets/3dd18559-4f52-4fc6-a514-638aa0ff2ef3)
 ![pexels-steve-1000084](https://github.com/user-attachments/assets/36058d2f-92ca-43bf-9e75-18a0e96bdd28)
 ![pexels-satyam-verma-2901977-4449068](https://github.com/user-attachments/assets/b7c6aea3-ddbb-41a7-95c6-98f30c95a1b8)
+![WhatsApp Image 2025-10-27 at 21 09 10](https://github.com/user-attachments/assets/7148c2cb-e3ac-4b10-835e-3f43255e164a)
