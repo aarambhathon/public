@@ -1,4 +1,9 @@
 # public
+![cake](https://github.com/user-attachments/assets/b9114a53-3370-4cfe-9f72-6e6f842304a6)
+
+
+<img width="1024" height="1536" alt="ChatGPT Image Nov 13, 2025 at 10_43_51 PM" src="https://github.com/user-attachments/assets/c0dfaff4-7933-49f9-8398-383911eb2d72" />
+
 ![yogitamam](https://github.com/user-attachments/assets/3c573aec-89c5-42e5-91ed-ddc9d244ea64)
 <img width="800" height="800" alt="suman sir" src="https://github.com/user-attachments/assets/02de1578-503e-4072-8879-132cc7fb52ff" />
 ![WhatsApp Image 2025-10-25 at 19 50 24](https://github.com/user-attachments/assets/ae3bfd70-06ec-4976-b78e-a0b90928e848)
