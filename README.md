@@ -1,6 +1,8 @@
 # public
 ![cake](https://github.com/user-attachments/assets/b9114a53-3370-4cfe-9f72-6e6f842304a6)
 
+![pixzolo-photography-BiWb1Y8wpZk-unsplash](https://github.com/user-attachments/assets/671ce686-f6ab-4050-b895-7db51c4cf8ce)
+
 
 <img width="1024" height="1536" alt="ChatGPT Image Nov 13, 2025 at 10_43_51 PM" src="https://github.com/user-attachments/assets/c0dfaff4-7933-49f9-8398-383911eb2d72" />
 
