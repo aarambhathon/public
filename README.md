@@ -1,4 +1,7 @@
 # public
+<img width="500" height="500" alt="arambh" src="https://github.com/user-attachments/assets/a79ec5a4-f12c-4757-a99e-748a810d0c32" />
+
+
 ![cake](https://github.com/user-attachments/assets/b9114a53-3370-4cfe-9f72-6e6f842304a6)
 
 ![coffee](https://github.com/user-attachments/assets/0085fc28-2d71-4d38-9ddd-5ce2c93f5801)
