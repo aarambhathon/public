@@ -25,6 +25,7 @@
 <img width="1886" height="2160" alt="misterutsav-2-2" src="https://github.com/user-attachments/assets/8b6b984a-386c-4bdd-8a52-4b3d49e3883e" />
 
 <img width="389" height="521" alt="Screenshot 2025-10-26 at 11 49 47 AM" src="https://github.com/user-attachments/assets/74a7e224-be2b-467f-8db7-c8dd1603c68b" />
+<img width="500" height="500" alt="KR_Mangalam_University_logo-removebg-preview" src="https://github.com/user-attachments/assets/64c66f3e-22d3-494f-93f3-5afcb1e19315" />
 
 ![coca](https://github.com/user-attachments/assets/c2a29177-e763-453f-8870-1729ca588647)
 ![pexels-qamar-rehman-94539242-12749504](https://github.com/user-attachments/assets/3dd18559-4f52-4fc6-a514-638aa0ff2ef3)
