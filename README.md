@@ -34,3 +34,4 @@
 ![WhatsApp Image 2025-10-27 at 21 09 10](https://github.com/user-attachments/assets/7148c2cb-e3ac-4b10-835e-3f43255e164a)
 <img width="1489" height="167" alt="Screenshot_2026-02-22_at_8 00 32_AM-removebg-preview" src="https://github.com/user-attachments/assets/79e734cf-9934-474f-b189-3e97742b8298" />
 <img width="500" height="500" alt="aarambhathgon-removebg-preview" src="https://github.com/user-attachments/assets/42184f5f-b930-43e5-a402-a0eb3e056274" />
+<img width="1530" height="163" alt="Screenshot_2026-03-06_at_7 33 36_PM-removebg-preview" src="https://github.com/user-attachments/assets/bce37220-7e59-4c9b-ac1d-9f5b9d0bef13" />
