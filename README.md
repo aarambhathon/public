@@ -1,3 +1,4 @@
+<img width="473" height="527" alt="Screenshot_2026-08-15_at_9 52 56_PM-removebg-preview" src="https://github.com/user-attachments/assets/81660adc-6264-4004-a65e-9b5d3c6910a2" />
 # public
 <img width="500" height="500" alt="arambh" src="https://github.com/user-attachments/assets/a79ec5a4-f12c-4757-a99e-748a810d0c32" />
 <img width="287" height="293" alt="Screenshot 2025-11-15 at 12 01 47 PM" src="https://github.com/user-attachments/assets/91788242-9c76-446e-a9df-d41e48f48fca" />
@@ -35,3 +36,4 @@
 <img width="1489" height="167" alt="Screenshot_2026-02-22_at_8 00 32_AM-removebg-preview" src="https://github.com/user-attachments/assets/79e734cf-9934-474f-b189-3e97742b8298" />
 <img width="500" height="500" alt="aarambhathgon-removebg-preview" src="https://github.com/user-attachments/assets/42184f5f-b930-43e5-a402-a0eb3e056274" />
 <img width="1530" height="163" alt="Screenshot_2026-03-06_at_7 33 36_PM-removebg-preview" src="https://github.com/user-attachments/assets/bce37220-7e59-4c9b-ac1d-9f5b9d0bef13" />
+<img width="473" height="527" alt="Screenshot_2026-08-15_at_9 52 56_PM-removebg-preview" src="https://github.com/user-attachments/assets/efc631bf-5861-4c4a-95a4-67b91dc67375" />
